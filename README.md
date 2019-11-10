@@ -1,1 +1,1 @@
-# Hiker-s-Watch
+# Hikers-Watch
